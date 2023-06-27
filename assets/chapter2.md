@@ -1,1 +1,0 @@
-Conhecida também como a "literatura das ideias", evita utilizar-se do sobrenatural, tema mais recorrente na Fantasia, baseando-se em fatos científicos e reais para compor enredos ficcionais.
